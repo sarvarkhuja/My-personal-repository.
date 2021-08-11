@@ -1,4 +1,4 @@
-### Hi there, I'm Ismoil Shokirov 👋
+### Hi there, I'm Sarvar Murad 👋
 
 - 🔭 I’m currently working at "Synel Ltd"
 - 👯 I’m looking to collaborate with other developers
